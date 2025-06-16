@@ -14,4 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am fun girl!
 
-![Aesthetic dark purple](https://github.com/user-attachments/assets/f77bbe29-be36-47cd-ad9b-784e310fffe3)
+![Aestheitc Baby Blue Wallpaper ✨](https://github.com/user-attachments/assets/00ad326a-cbd2-49e6-8170-478c71df2cac)
